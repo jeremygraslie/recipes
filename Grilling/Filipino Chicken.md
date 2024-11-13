@@ -6,7 +6,7 @@
 
 1/2 cup 7up/Sprite (lemon lime soda is best, use Real Sugar sodas when possible)
 
-4/5 cloves garlic, crushed
+4-5 cloves garlic, crushed
 
 1/4 cup Sriracha
 
